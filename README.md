@@ -15,4 +15,4 @@ apple is my favorite vegetable
 <img src="https://files.catbox.moe/k4iztj.png" width="300" />
 <h6 align="center">
   
-[α𝗍α](https://everymanhibrid.atabook.org/)
+[α𝗍α](https://everymanhibrid.atabook.org/) . [yume list](https://rentry.co/invisibleyumes)
