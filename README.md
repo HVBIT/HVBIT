@@ -9,10 +9,10 @@
   </a>
 </p>
 <h6 align="center">
-apple is my favorite vegetable 
+you cαn be my αmericαn hα hα boy!
 <h6 align="center">
 
-<img src="https://files.catbox.moe/k4iztj.png" width="300" />
+<img src="https://github.com/HVBIT/HVBIT/blob/main/047f5eb123cfbb17e1e29a1cb79eb60a%20(1).jpg?raw=true" width="300" />
 <h6 align="center">
   
 [α𝗍α](https://everymanhibrid.atabook.org/) . [yume list](https://rentry.co/invisibleyumes)
