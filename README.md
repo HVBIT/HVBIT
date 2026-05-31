@@ -17,4 +17,4 @@ you cαn be my αmericαn hα hα boy!
 <img src="https://github.com/HVBIT/HVBIT/blob/main/download%20(6).png?raw=true" width="300" />
 <h6 align="center">
   
-[α𝗍α](https://everymanhibrid.atabook.org/) . [yume list](https://rentry.co/invisibleyumes)
+[α𝗍α](https://everymanhibrid.atabook.org/) . [yume list](https://rentry.co/invisibleyumes) . [rentry1](https://rentry.co/cutestbunni) . [rentry2](https://rentry.co/habitsbunni)
